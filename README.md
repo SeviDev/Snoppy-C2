@@ -1,2 +1,2 @@
-discord Sevi
-telegram - KryptonDev
+discord Sevi1234
+telegram - Domagerman
